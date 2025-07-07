@@ -20,4 +20,4 @@
 
 作为日本AV免费首选站点，我们坚持每天多次更新内容，确保影片新鲜度，为您带来源源不断的精彩。立即收藏本站，免费在线观看每日更新的日本AV高清无码影片，探索您最爱的女优作品，享受极致视觉盛宴！
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtnn2611dtn2611/00002 ）</span>
